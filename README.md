@@ -1,1 +1,1 @@
-"Yes." -Turkish Army on Ome TV, (Circa 2021)
+"Yes." -Turkish Army on Ome TV, Circa 2021
